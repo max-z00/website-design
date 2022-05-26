@@ -8,4 +8,4 @@
 ![—Pngtree—red grainy ancient style ink_5475203](https://user-images.githubusercontent.com/50899639/170422622-c8e4966e-0b18-458d-84dd-23cd549a15b6.png)
 ![Particles-Download-PNG](https://user-images.githubusercontent.com/50899639/170586356-831d0eb5-14b5-4dc6-a02d-ae34b2e698a3.png)
 
-![kindpng_7394427](https://user-images.githubusercontent.com/50899639/170586610-b0da5419-be54-42b1-8fb8-b118189fd3e7.png)
+![pngwing com](https://user-images.githubusercontent.com/50899639/170587087-d0d2b7ff-e1ec-412b-aaf3-78c54a044316.png)
